@@ -1,7 +1,7 @@
 Computer science student at uni
 Aspiring certified ethical hacker 
 i create desktop app to help you stay in fashion
-find me in IG https://www.instagram.com/_s.mariama/
+find me on IG https://www.instagram.com/_s.mariama/
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/_S.mariama) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/www.linkedin.com/in/ mariama-tounkara-4b1117341) 
