@@ -1,6 +1,6 @@
 Computer science student at uni
 Aspiring certified ethical hacker 
-i creat desktop app to help you stay in fashion
+i create desktop app to help you stay in fashion
 find me in IG https://www.instagram.com/_s.mariama/
 
 ## 🌐 Socials:
